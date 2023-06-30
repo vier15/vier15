@@ -2,7 +2,7 @@
 - 👀 I’m interested in Video Games, Drawing and Japan Pop Culture such as Anime and Manga
 - 🌱 I’m currently learning to live happily
 - 💞️ I’m looking to collaborate on this life happily
-- 📫 How to reach me. No you cant
+- 📫 How to reach me. Just look at the sky my friend, ill be there among the stars
 
 <!---
 vier15/vier15 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
